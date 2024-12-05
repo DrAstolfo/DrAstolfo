@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DrAstolfo
+- 👀 I’m interested in Everything i havent seen yet
+- 🌱 I’m currently learning for Fun
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me discord = drastolfoo
+- 😄 Pronouns: Any idc 
+- ⚡ Fun fact: skibidi skibidi hawktuah hawk...
